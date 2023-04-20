@@ -7,14 +7,14 @@
 
 <p align="center">
     <b>ᴠɪsɪᴛᴏʀs</b><br>
- -->    <img align="middle" src="https://profile-counter.glitch.me/THE-VIP-BOY-OP/count.svg" />
+ -->    <img align="middle" src="https://profile-counter.glitch.me/CuteBaccha/count.svg" />
 </p>
 
 
 
 
 <h2 align="center">
-    ──「 𝗩𝗜𝗣 𝗠𝗨𝗦𝗜𝗖 」──
+    ──「 𝗔𝗡𝗦𝗛 𝗠𝗨𝗦𝗜𝗖 」──
 
 
 
@@ -22,10 +22,10 @@
 </h2>
 
 <p align="center">
-  <img src="https://te.legra.ph/file/7b51adb8645bb87510996.jpg">
+  <img src="https://telegra.ph/file/72fc4ed0b02894736b3b7.jpg">
 </p>
 
-**𝙏𝙀𝙎𝙏 𝘽𝙊𝙏 ➣ [𝄟ॐ❥𝗩𝗜𝗣🍷𝗠𝗨𝗦𝗜𝗖❥𝄟⃟🥀](https://t.me/II_VIP_MUSIC_II_BOT)**
+**𝙏𝙀𝙎𝙏 𝘽𝙊𝙏 ➣ [𝄟𝗔𝗡𝗦𝗛 𝗠𝗨𝗦𝗜𝗖❥𝄟⃟🥀](https://t.me/RABTAROBOT)**
 
 
 
@@ -45,7 +45,7 @@
 
 <h2 align="center">
 
-🔴「 𝗜𝗙 𝗔𝗡𝗬 𝗘𝗥𝗥𝗢𝗥 𝗧𝗛𝗘𝗡 𝗦𝗘𝗡𝗗 𝗦𝗦 𝗧𝗢 𝗗𝗠 」🔴
+🔴「 𝗜𝗙 𝗔𝗡𝗬 𝗘𝗥𝗥𝗢𝗥 𝗧𝗛𝗘𝗡 𝗦𝗘𝗡𝗗 𝗦𝗦 𝗧𝗢  」🔴
 <p align="center">
 <a href="https://telegram.me/THE_VIP_BOY"><img src="https://img.shields.io/badge/-☆𝐃𝐌 𝐓𝐎 𝐕𝐈𝐏 𝐁𝐎𝐘%20☆-blue.svg?style=for-the-badge&logo=Telegram"></a>
 </p>
